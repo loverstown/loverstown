@@ -10,8 +10,7 @@
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤㅤㅤㅤㅤㅤㅤ[@joosbocks](https://github.com/joosbocks) and [@tomatosu](https://github.com/tomatosu) as ponytown’s Narusasu ♡ !
-ㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤ[@joosbocks](https://github.com/joosbocks) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@tomatosu](https://github.com/tomatosu) ${\textsf{\color{#FFC0CB} as ponytown’s Narusasu ♡ !ㅤㅤㅤㅤㅤㅤㅤ}}$
 
 
 ㅤㅤㅤㅤㅤㅤㅤ
