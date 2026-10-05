@@ -12,7 +12,7 @@
   
 [@poisonedritual](https://github.com/poisonedritual) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@germanstare](https://github.com/germanstare) ${\textsf{\color{#FFC0CB} as ponytown’s azuretime ♡ ! ㅤㅤㅤㅤㅤㅤㅤ}}$  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
   
-[@plsticpup](https://github.com/poisonedritual) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ chris ${\textsf{\color{#FFC0CB} as ponytown’s jott ♡ ㅤㅤㅤㅤㅤㅤㅤ! (Jean grey x Scott summers) }}$
+[@plsticpup](https://github.com/plsticpup) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ chris ${\textsf{\color{#FFC0CB} as ponytown’s jott ♡ ㅤㅤㅤㅤㅤㅤㅤ! (Jean grey x Scott summers) }}$
 
 
 ㅤㅤㅤㅤㅤㅤㅤ
