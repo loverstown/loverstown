@@ -8,7 +8,10 @@
 ㅤㅤㅤㅤㅤㅤㅤ[@joosbocks](https://github.com/joosbocks) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@tomatosu](https://github.com/tomatosu) ${\textsf{\color{#FFC0CB} as ponytown’s Narusasu ♡ ! (Naruto x Sasuke) ㅤㅤㅤㅤㅤㅤㅤ}}$
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
   
-[@poisonedritual](https://github.com/poisonedritual) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@germanstare](https://github.com/germanstare) ${\textsf{\color{#FFC0CB} as ponytown’s azuretime ♡ ㅤㅤㅤㅤㅤㅤㅤ}}$
+[@poisonedritual](https://github.com/poisonedritual) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@germanstare](https://github.com/germanstare) ${\textsf{\color{#FFC0CB} as ponytown’s azuretime ♡ ! ㅤㅤㅤㅤㅤㅤㅤ}}$  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
+  
+[@plsticpup](https://github.com/poisonedritual) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ chris ${\textsf{\color{#FFC0CB} as ponytown’s jott ♡ ㅤㅤㅤㅤㅤㅤㅤ! (Jean grey x Scott summers) }}$
+
 
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤ
