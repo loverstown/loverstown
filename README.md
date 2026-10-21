@@ -19,6 +19,7 @@
 [@vaciIIator](https://github.com/vaciIIator) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ chris ${\textsf{\color{#FFC0CB} as ponytown’s jott ♡ ! (Jean grey x Scott summers) }}$
 
 [@mydad-is-myhero](https://github.com/mydad-is-myhero) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@iwanttoholdyourhand](https://github.com/iwanttoholdyourhand) ${\textsf{\color{#FFC0CB} as ponytown’s batarou ♡ ! ㅤ(Garou x Metal bat)ㅤㅤㅤㅤㅤㅤ}}$  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
+[@itrap-2245](https://github.com/itrap-2245) ${\textsf{\color{#FFC0CB} and ㅤㅤㅤㅤㅤㅤㅤ}}$ [@SONNELLINOENTHUSIAST](https://github.com/SONNELLINOENTHUSIAST) ${\textsf{\color{#FFC0CB} as ponytown’s frozendebt ♡ ! ㅤ(Itrapped x Mafioso)ㅤㅤㅤㅤㅤㅤ}}$  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤ  
 
 
 
